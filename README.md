@@ -3,7 +3,7 @@
 <p align="center">$\color{#806c6a}{\textsf{ ˝ Shadows  die  twice  .. ˝ }}$
 
 <p align="center">$\color{#8f644d}{\textsf{ Jaymie / Sleepy  ,, 6teen !!! }}$
-<p align="center">$\color{#8f644d}{\textsf{ Two Time fictkin ,, doubles dni ok }}$
+<p align="center">$\color{#8f644d}{\textsf{ Two Time + Devin fictkin ,, doubles dni ok }}$
 
 <p align="center"><img src="https://ajajajuh.carrd.co/assets/images/image14.png?v=ca3921bc" />
 <p align="center">$\color{#806c6a}{\textsf{ all profile art by @/fabledfeathers on tmblr }}$
